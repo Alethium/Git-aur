@@ -1,1 +1,1 @@
-this guitar was one sean's real guitar boogey
+this guitar was one sean's real guitar no dancing!
