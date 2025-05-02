@@ -1,0 +1,1 @@
+this guitar was one sean's real guitar
